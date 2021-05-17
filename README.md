@@ -6,7 +6,7 @@ https://www.youtube.com/watch?v=qgJ5HCFZbT0
 
 Description soon!
 
-![image](https://user-images.githubusercontent.com/54479009/118493560-89e19c00-b721-11eb-9318-f56314caf6f6.png)
+![1 1](https://user-images.githubusercontent.com/54479009/118493740-b85f7700-b721-11eb-9cb2-ffd4ff41e190.png)
 
 ![dane2](https://user-images.githubusercontent.com/54479009/118493378-56067680-b721-11eb-8af4-b2563b1467cf.gif)
 
